@@ -1,7 +1,7 @@
-this treaty has been set forth by USNL  to adopted the nation of the democratic peoples republic of ME4502. we will stride to protect and defend for this peoples republic from anyone or anything that threatens them.we shall up hold these rule we will not invade or attck DPRM or any of it allies. In return we will recieve food, educational teachings, technology, you msut also abide by our rules and and relgist teachings. the DPRM will have to supply any new weapons or technical advaces. ant luqids that may be helpful to my cuases. the nation of DPRM  will have to hand over precious metals. your females will not be harmed , rape or taken by my men or by my nation.your male will have to join the natinal army.
+This treaty has been set forth by the USNL to adopt the nation of the Democratic People's Republic of Me4502. We will strive to protect and defend for the People's Republic from anyone or anything that threatens them . We shall uphold these rules; we will not invade nor attck DPRM or any of its allies. In return we will recieve food; educational teachings; technology. You must also abide by our rules and and religious teachings. The DPRM will have to supply any new weapons or technological advancements. You also must supply and liquids that may be helpful to my causes. The nation of DPRM will have to hand over any precious metals. Your females will not be harmed, raped or taken by any of my men or by my nation. Your men will have to join the national army.
                 
 
-signtures
+Signtures
 
 USNL                   DPRM                     chief commander JAKE 
 
