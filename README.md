@@ -3,6 +3,6 @@ this treaty has been set forth by USNL  to adopted the nation of the democratic 
 
 signtures
 
-USNL                   DPRM                     chief commander JAKE 
+<b>USNL</b>            DPRM                     chief commander JAKE 
 
 _________              __________               ____________________
